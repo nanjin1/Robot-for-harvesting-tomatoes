@@ -19,7 +19,7 @@
 
 
 
-🔗项目视频：
+🔗完整项目视频：
 https://www.bilibili.com/video/BV15L41187rG/?share_source=copy_web&vd_source=a43e5d3e47e88411e9a2c83416bb72a8
 
 
